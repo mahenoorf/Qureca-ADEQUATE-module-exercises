@@ -1,0 +1,1 @@
+# Qureca-ADEQUATE-module-exercises
